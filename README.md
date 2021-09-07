@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @tinyblockchain.
-- 👀 I’m interested in decentralized projects with blockchain. Investing in small business, and finance as a hobby.
+- 👀 I’m interested in decentralized projects on a blockchain. Investing in small business, and finance as a hobby.
 - 🌱 I’m currently learning basic tokenomics in the Ethereum eco system.
 - 💞️ I’m looking to collaborate on decentralized projects by contributing 20 years of general business experience, startups, and solutions.
 - 📫 How to reach me tinyblockchain at protonmail.
